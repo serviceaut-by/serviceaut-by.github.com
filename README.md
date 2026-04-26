@@ -1,1 +1,0 @@
-# bel-servise-pre.github.com
